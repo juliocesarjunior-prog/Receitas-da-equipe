@@ -1,1 +1,1 @@
-# Equipe Pamonha Receitas-da-equipe
+# Equipe-Pamonha-de-cookie
